@@ -1,0 +1,1 @@
+# bridgeEd-privacy-policy
